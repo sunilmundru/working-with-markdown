@@ -90,5 +90,7 @@ dcase@nwmissouri.edu
 
 ## New Section 
 
-sunil mundru
-![Hosted image](https://www.nwmissouri.edu/marketing/images/design/logos/N60-2Stack-Full.jpg)
+## ABOUT MY VILLAGE
+
+![Hosted image](https://images1.phoenixnewtimes.com/imager/u/original/9317492/maryvale_top.jpg)
+##
