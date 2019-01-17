@@ -93,4 +93,10 @@ dcase@nwmissouri.edu
 ## ABOUT MY VILLAGE
 
 ![Hosted image](https://images1.phoenixnewtimes.com/imager/u/original/9317492/maryvale_top.jpg)
-##
+
+-[website](https://en.wikipedia.org/wiki/Maryville,_Missouri)
+
+## ABOUT MARYVILLE WEATHER
+37°F (3°C), Wind NW at 5 mph (8 km/h), 100% Humidity
+## POPULATION
+ 7,900 
