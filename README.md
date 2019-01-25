@@ -92,7 +92,7 @@ dcase@nwmissouri.edu
 
 ## ABOUT MY VILLAGE
 
-![Hosted image](https://images1.phoenixnewtimes.com/imager/u/original/9317492/maryvale_top.jpg)
+![Hosted image](https://bloximages.chicago2.vip.townnews.com/maryvilleforum.com/content/tncms/assets/v3/editorial/4/b5/4b50df70-8adb-11e8-b498-4bf0b5f5202f/5b4fc16a02e1f.preview.jpg?resize=1200%2C777)
 
 -[website](https://en.wikipedia.org/wiki/Maryville,_Missouri)
 
